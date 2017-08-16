@@ -1,1 +1,1 @@
-https://github.com/pol-anka/Page_about_ohm
+https://github.com/anastasiiabuhaienko/Page_about_ohm
